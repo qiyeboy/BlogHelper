@@ -56,7 +56,7 @@
 
 - 我的邮箱：[codeblog@qq.com](mailto:codeblog@qq.com)📩
 
-- 我的微信：codeblog！拉你进群！
+- 我的微信：codeblog 📡着急可以加微信联系
 
 - LOGO设计师：Summer（QQ：1003737038）
 
